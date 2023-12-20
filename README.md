@@ -6,3 +6,4 @@ Projet Sandaga
 ![photo_1_2023-12-20_11-48-07](https://github.com/jason-KITIO/Sandaga-1.0/assets/133285894/d6c34833-e1ce-44f3-b21a-4835e5e0b5d0)
 ![photo_6_2023-12-20_11-48-07](https://github.com/jason-KITIO/Sandaga-1.0/assets/133285894/b8673351-9b2c-466d-8640-51cddfd98265)
 ![photo_5_2023-12-20_11-48-07](https://github.com/jason-KITIO/Sandaga-1.0/assets/133285894/388b2583-80d3-44b4-9b0a-668597269af9)
+![photo_8_2023-12-20_11-48-07](https://github.com/jason-KITIO/Sandaga-1.0/assets/133285894/a8fa1165-7aa0-4b1d-ba43-abfdbb1f80fd)
